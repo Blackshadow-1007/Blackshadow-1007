@@ -27,3 +27,6 @@ or find me here:
 
 ### Spoken Languages: 
 ![](https://img.shields.io/badge/German-CEFR%20C1-ff4134?style=for-the-badge) ![](https://img.shields.io/badge/English-CEFR%20C1-2ecc40?style=for-the-badge) ![](https://img.shields.io/badge/Spanish-CEFR%20A1-ffe066?style=for-the-badge)
+
+---
+<img src="https://github.com/Blackshadow-1007/Blackshadow-1007/blob/main/Flag_Trans.jpg" width="24"><img src="https://github.com/Blackshadow-1007/Blackshadow-1007/blob/main/Flag_Trans_Bi.png" width="24"><img src="https://github.com/Blackshadow-1007/Blackshadow-1007/blob/main/Flag_Bi.png" width="24">
