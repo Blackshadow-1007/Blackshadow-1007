@@ -1,6 +1,6 @@
 ## Hi there, I'm Blackshadow
 
-I am a small and  casual Content Creator, but i do some side Projects as well. I love doing many different things, so i dont always stay on one for long. I will come back to it eventually but don't expect frequent Updates.
+I'm a small and casual content creator, with a few side projects. I love variety, so staying focused on just one thing isn't really my style. I'll always get back to it eventually, just dont expect frequent updates.
 
 If you want to reach out to me, you can do so on my Discord Server:
 
