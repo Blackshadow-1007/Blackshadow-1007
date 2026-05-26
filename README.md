@@ -4,7 +4,7 @@ I am a small and  casual Content Creator, but i do some side Projects as well. I
 
 If you want to reach out to me, you can do so on my Discord Server:
 
-[![](https://img.shields.io/discord/1478581838032142539?style=for-the-badge&logo=discord&logoColor=white&label=Discord&color=5865F2)](https://discord.gg/yzh6kWpag6)
+[![](https://img.shields.io/discord/1478581838032142539?style=for-the-badge&logo=discord&logoColor=white&label=Discord&color=5865F2)](https://discord.gg/AyMC5zDq3k)
 
 or find me here:
 
